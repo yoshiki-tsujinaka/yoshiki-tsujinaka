@@ -1,1 +1,1 @@
-![](https://www1.lunapic.com/do-not-link-here-use-hosting-instead/175187435299080390?68083833804)
+![](![imageedit_2_2842518875](https://github.com/user-attachments/assets/86a8dd75-313e-4135-8a8e-f1f9c740fced))
